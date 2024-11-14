@@ -4,6 +4,3 @@
 - tenho um cachorro
 - sou representante
 - trabalho
-- me machuco sozinho
-- gosto da  solitude
-- 
